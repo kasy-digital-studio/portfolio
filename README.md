@@ -51,3 +51,4 @@ Coming soon...
 ---
 
 © 2026 Kasy Digital Studio
+✦ Building digital experiences with purpose.
