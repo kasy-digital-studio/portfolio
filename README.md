@@ -1,4 +1,4 @@
-# ✦ Kasy Digital Studio
+# ✨ Kasy Digital Studio ✨
 
 ### Diseño & desarrollo web
 
